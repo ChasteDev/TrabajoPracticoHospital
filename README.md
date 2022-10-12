@@ -1,5 +1,0 @@
-# TrabajoPracticoHospital
-........
-
-
-alñsdkasd
